@@ -4,6 +4,8 @@
 
 Twitterにあげていた素材が増えてきたので、こちらにまとめます。
 
+また、[おめがシスターズの動画](https://www.youtube.com/channel/UCNjTjd2-PMC8Oo_-dCEss7A?sub_confirmation=1)をスクショ画像やキャプチャ映像についても、基本的に自由に使って問題ありませんが、こちらの規約が適用されます。
+
 ## おめがシスターズとは？
 
 バーチャルYoutuberをやっている双子の姉妹です。
